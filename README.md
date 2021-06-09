@@ -1,1 +1,1 @@
-# proxglobal.github.io
+# waterbearstudio.github.io
